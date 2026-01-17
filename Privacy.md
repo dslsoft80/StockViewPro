@@ -13,7 +13,7 @@ This Privacy Policy explains how the "Stock View Pro" custom visual for Microsof
 ### Changes to This Policy
 We may update this policy from time to time. Any changes will be posted here with an updated effective date.
 
-If you have questions, contact us at [your-email@example.com].
+If you have questions, contact us at dslsoft80@gmail.com.
 
 Published by: DSL Soft 
 Location: Sydney, Australia
