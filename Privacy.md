@@ -1,4 +1,4 @@
-# Privacy Policy for [Your Visual Name] Power BI Visual
+# Privacy Policy for Stock Pro View Power BI Visual
 
 **Effective Date:** January 17, 2026
 
